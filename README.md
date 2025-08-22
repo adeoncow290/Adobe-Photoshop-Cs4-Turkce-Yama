@@ -1,0 +1,1 @@
+# Adobe-Photoshop-Cs4-Turkce-Yama
